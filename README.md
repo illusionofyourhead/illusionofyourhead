@@ -1,7 +1,5 @@
 ## mᥱᥱ𝗍 𝗍һіs ᥲssһ᥆ᥣᥱ ᯤ ᯅ ᯤ
 
-
-<img width="236" height="236" alt="e166a86ef7650a28eee051c470cabd8a" src="https://github.com/user-attachments/assets/8bd746a8-36f1-4e01-8598-a13dc8bd9fb2" />
 <img width="352" height="143" alt="images" src="https://github.com/user-attachments/assets/6dcf5008-a49b-44cd-9f35-12fa642078c0" />
 
          
@@ -24,3 +22,4 @@
 
 
                       SIGN ATA PLEASEEEEE 😔😔😭 
+<img width="236" height="236" alt="e166a86ef7650a28eee051c470cabd8a" src="https://github.com/user-attachments/assets/8bd746a8-36f1-4e01-8598-a13dc8bd9fb2" />
